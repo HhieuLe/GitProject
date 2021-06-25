@@ -1,1 +1,3 @@
-Joke over your dead
+Joke over, your dead
+Time to jump
+Haha, Sage :)
